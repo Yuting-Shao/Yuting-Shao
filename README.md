@@ -1,0 +1,1 @@
+Hi, I'm Yuting. I'm interested in algorithm development, quantitative research, and machine learning. I'm looking for internships opportnunity as software engineer or algorithm engineer or quantitative researcher. How to reach me: yutshao@gmail.com
